@@ -1,1 +1,0 @@
-# njyc.github.io
